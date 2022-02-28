@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @buipotiguar or Bui
-- 👀 I’m interested in science, bioacoustics, art and cinema
+- 👀 I’m interested in science, DEI, Volunteering, bioacoustics, and cinema
 - 🌱 I’m currently learning project management
 - 💞️ I’m looking to collaborate on bioacoustics projects
 - 📫 Contact me in brunacampospaula@gmail.com
